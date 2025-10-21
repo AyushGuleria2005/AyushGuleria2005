@@ -7,3 +7,4 @@
 </p>
 
 ### Just like these apples — I explore everything before choosing my favorite 🍏
+### Connect with me - <a href="https://linktr.ee/AyushGuleria2005">reach me here</a>
